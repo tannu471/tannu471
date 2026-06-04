@@ -1,7 +1,7 @@
 # 💫 Hi 👋, I'm Chetan gola
 **I am from Uttarakhand, India**
 
-Email Me 👉 ✉️ **alamimran613@live.com** For Collaboration/Project or Anything Else. 😊😊
+**tannugola092@gmail.com**.
 
 - 🌱 **I’m currently learning:** programming
 - 👯 **Discord server:** https://discord.gg/MHzpgutEsh
